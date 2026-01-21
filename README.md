@@ -4,7 +4,7 @@ SSCO har en lång historia av studentinflytande och bildades 1896. Vi är ett sa
 Du kan läsa mer om oss på **[ssco.se](https://ssco.se)**.
 
 ## Nobel och studenttraditioner 🎓
-SSCO ansvarar för studentinslagen vid den årliga Nobelprisutdelningen i Stockholms konserthus och den efterföljande Nobelfesten i Stockholms stadshus. Dessutom planeras och arrangeras studenternas årliga Valborgsfirande av SSCO:s övermarskalksämbete.  
+SSCO ansvarar för studentinslagen vid den årliga Nobelprisutdelningen i Stockholms konserthus och den efterföljande Nobelbanketten i Stockholms stadshus. Dessutom planeras och arrangeras studenternas årliga Valborgsfirande av SSCO:s övermarskalksämbete.  
 
 SSCO:s övermarskalksämbete ombesörjer alltså stora delar av studenternas traditionella firanden under året!
 
